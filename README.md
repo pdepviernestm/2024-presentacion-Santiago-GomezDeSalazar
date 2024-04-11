@@ -5,5 +5,10 @@
 - Todos los días escucho a The Weeknd.
 - Soy hincha de San Lorenzo.
 - En mi tiempo libre voy al gimnasio.
+- Me encanta ver series, pero ahora no estoy enganchada con ninguna.
+- Las mejores series que vi fueron: Breaking Bad, Black Mirror y Dark (muy infravalorada).
+
+  
+
 
 
